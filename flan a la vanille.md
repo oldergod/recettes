@@ -34,5 +34,5 @@ Pectine , je laisse bouillir 30 secondes et j’applique ensuite le mélange ti�
 8. plus crème liquide
 10. Verser dans le moule : 165° pendant 1h
 11. Reposer au frais pendant la nuit.
-12. Appliquer au pinceau le gel vanille.
-13. Démouler.
+12. Démouler.
+13. Appliquer au pinceau le gel vanille.
