@@ -19,10 +19,9 @@ Pour 6 personnes
 5. Retirer les gousses de vanille.
 6. Réchauffer le mélange lait/crème si nécessaire, puis le verser progressivement sur les jaunes tout en fouettant. Remettre le tout dans la casserole et cuire comme une crème anglaise jusqu'à **82 °C**, en mélangeant constamment.
 7. Retirer immédiatement du feu et refroidir rapidement la crème en plaçant le récipient dans un bain de glace. Couvrir au contact avec un film alimentaire et laisser maturer **24 heures au réfrigérateur**.
-8. Verser la préparation froide dans un récipient métallique ou un plat large et peu profond. Placer au congélateur.
-9. Après environ **45 minutes**, lorsque les bords commencent à geler, mixer la préparation directement dans le récipient pendant **30 à 60 secondes** à l'aide d'un **mixeur plongeant** jusqu'à ce qu'elle soit parfaitement homogène.
-10. Remettre au congélateur et répéter cette opération **toutes les 30 à 45 minutes**, **4 à 6 fois**, jusqu'à obtenir une texture proche d'une glace à l'italienne épaisse. Compter environ **3 à 4 heures** au total.
-11. Transférer la glace dans une boîte hermétique préalablement refroidie et laisser prendre encore **2 à 4 heures** au congélateur.
-12. Sortir la glace du congélateur **10 à 15 minutes** avant de la servir afin qu'elle retrouve toute son onctuosité.
-
-※ si pas de mixeur plongeant, on fouette.
+8. Verser la préparation froide dans des moules de congélation individuels d'environ **120 ml** (par exemple des Souper Cubes 1/2 Cup), couvrir et congeler complètement, idéalement toute une nuit.
+9. Démouler la quantité de glace souhaitée. Si les blocs sont extrêmement durs, les laisser reposer **5 à 10 minutes** à température ambiante.
+10. Placer plusieurs blocs dans le **grand bol du Ninja équipé des lames Total Crushing**. Ne pas utiliser le gobelet individuel.
+11. Donner plusieurs impulsions avec **Pulse** pour casser les blocs, puis mixer jusqu'à obtenir une texture homogène et crémeuse. Arrêter l'appareil et redistribuer les morceaux avec une spatule si nécessaire, puis reprendre le mixage.
+12. Servir immédiatement pour une texture très souple, ou transférer dans une boîte hermétique et remettre **20 à 60 minutes au congélateur** pour obtenir une glace plus ferme.
+13. Pour conserver la meilleure texture possible, ne mixer de préférence que la quantité destinée à être consommée.
