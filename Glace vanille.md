@@ -1,14 +1,14 @@
 ## Ingrédients:
 
-Pour 6 personnes
+Pour 9 personnes
 
-- 500 g de lait entier
-- 250 g de crème liquide entière (minimum 30 % MG)
-- 140 g de jaunes d’œufs (environ 7 jaunes)
-- 110 g de sucre
-- 1 ou 2 belles gousses de vanille
-- 40 g de glucose
-- 30 g de lait en poudre
+- 750 g de lait entier
+- 375 g de crème liquide entière (minimum 30 % MG)
+- 210 g de jaunes d’œufs (environ 10 à 11 jaunes)
+- 165 g de sucre
+- 2 ou 3 belles gousses de vanille
+- 60 g de glucose
+- 45 g de lait en poudre
 
 ## Préparation:
 
